@@ -1,1 +1,0 @@
-# Aliskanlik-takip
